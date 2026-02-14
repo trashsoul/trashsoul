@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓂃ㅤㅤ ppl i follwㅤㅤr ㅤㅤ**oomfs**ㅤㅤ/coolㅤguys  ㅤㅤ 𝘇 𐰁
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤrudo number 1#ㅤ fan ㅤㅤ![Image](https://github.com/user-attachments/assets/9e9bcd3f-4daa-404f-bc3d-0b046656ba36)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤrandalㅤ.tsuksa kinㅤㅤ![Image](https://github.com/user-attachments/assets/9e9bcd3f-4daa-404f-bc3d-0b046656ba36)
 
 
 
