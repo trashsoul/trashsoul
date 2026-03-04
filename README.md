@@ -8,3 +8,5 @@
 
 
 
+ㅤㅤㅤI HATE RUDO SHIPS AND IM NOT SORRY.
+
