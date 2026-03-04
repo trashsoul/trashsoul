@@ -5,8 +5,10 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓂃ㅤㅤthe peopl i follwㅤㅤr ㅤㅤ**oomfs**ㅤㅤ  ㅤㅤ 𝘇 𐰁
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤrandalㅤ.tsuksa kinㅤㅤ![Image](https://github.com/user-attachments/assets/9e9bcd3f-4daa-404f-bc3d-0b046656ba36)
+ㅤ
+ㅤ
+ㅤ
 
 
-
-ㅤㅤㅤI HATE RUDO SHIPS AND IM NOT SORRY.
+ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI HATE RUDO SHIPS AND IM NOT SORRY.
 
