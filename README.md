@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ୨ৎㅤ names **skylar** or kura ㅤ!ㅤ![Image](https://github.com/user-attachments/assets/92645e74-f317-415c-b62e-6f31e707f27a)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓂃ㅤㅤthe peopl i follwㅤㅤr ㅤㅤ**oomfs**ㅤㅤ  ㅤㅤ 𝘇 𐰁
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓂃ㅤㅤthe peopl i follwㅤㅤr ㅤㅤ**oomfs** or fwㅤㅤ  ㅤㅤ 𝘇 𐰁
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤrandalㅤ.tsuksa kinㅤㅤ![Image](https://github.com/user-attachments/assets/d5cf1ed4-13a6-4622-871f-07be910cdc5f) ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
