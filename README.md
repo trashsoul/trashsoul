@@ -1,5 +1,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤhi. im mob or usually **kura**.ㅤ6teen ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ[strawpage](https://mobuxxj.straw.page)ㅤㅤ[pinterest](https://pin.it/4E4N4ty1C)ㅤㅤ[atabook](https://shigeomob.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://mobuxxj.straw.page)ㅤㅤ[pinterest](https://pin.it/4E4N4ty1C)ㅤㅤ[atabook](https://shigeomob.atabook.org/)
 
 
 
