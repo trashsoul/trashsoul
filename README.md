@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤhi. im mob or usually **jisho**.ㅤ7teen ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://mobuxxj.straw.page)ㅤㅤ[pinterest](https://pin.it/4E4N4ty1C)ㅤㅤ[atabook](https://shigeomob.atabook.org/)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsign my christmas tree now ㅤㅤhttps://decomytree.net/t/nQpM9x
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsign my christmas tree now ㅤㅤhttps://decomytree.net/t/nQpM9x
 
 
 
